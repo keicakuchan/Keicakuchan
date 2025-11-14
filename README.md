@@ -1,7 +1,7 @@
 ## yellow there ^_^
 
 <!--
-**keicakuchan/Keicakuchan** is a ✨ _special_ ✨ repository because its `README.md` (https://64.media.tumblr.com/7184669cef0bc7c66d04b622ad58a7cc/4ec4bb0732534adc-49/s2048x3072/a0feb9426cd95ffcf37cc4ea843e91bbdc2dfa11.jpg ) appears on your GitHub profile.
+**keicakuchan/Keicakuchan** is a ✨ _special_ ✨ repository because its `README.md` ![image](https://github.com/user-attachments/assets/ceafb962-840e-4500-b0bf-a327682dd383)-49/s2048x3072/a0feb9426cd95ffcf37cc4ea843e91bbdc2dfa11.jpg ) appears on your GitHub profile.
 
 Here are some ideas to get you started:
 ![image](https://github.com/user-attachments/assets/ceafb962-840e-4500-b0bf-a327682dd383))
