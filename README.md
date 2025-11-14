@@ -10,3 +10,5 @@
 ⚜️ ᴘʟᴇᴀꜱᴇ ɪɴᴛᴇʀᴀᴄᴛ ᴡɪᴛʜ ᴇxᴛʀᴀ ᴄᴀᴜᴛɪᴏɴ !! 
 
 ⚜️ ɪ ᴀʟᴡᴀʏꜱ ʟᴏᴠᴇ ᴛᴏ ᴍᴀᴋᴇ ɴᴇᴡ ꜰʀɪᴇɴᴅꜱ !!
+
+![image](https://github.com/user-attachments/assets/46cfff9f-9904-4d39-a51f-4ed38cf2a2b7)![image](https://github.com/user-attachments/assets/f866169f-16e3-4dc8-8939-e72e717d25bf)
