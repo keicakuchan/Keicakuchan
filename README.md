@@ -3,10 +3,10 @@
 ![image](https://github.com/user-attachments/assets/ceafb962-840e-4500-b0bf-a327682dd383)
 ![image](https://github.com/user-attachments/assets/13880630-d4bc-4b6e-b635-d509db418a72)
 ![image](https://github.com/user-attachments/assets/354da6a5-e2da-4912-9639-42c7c0ce4313)
-⚜️ I DO NOT SUPPORT PROSHIPPERS
+⚜️ ɪ ᴅᴏ ɴᴏᴛ ꜱᴜᴘᴘᴏʀᴛ ᴘʀᴏꜱʜɪᴘᴘᴇʀꜱ
 
-⚜️ DO NOT RP W ME IF YOU INCLUDE GR🍇 OR INC3ST!!
+⚜️ ᴅᴏ ɴᴏᴛ ʀᴘ ᴡ ᴍᴇ ɪꜰ ʏᴏᴜ ɪɴᴄʟᴜᴅᴇ ɢʀ🍇 ᴏʀ ɪɴᴄ3ꜱᴛ!!
 
-⚜️ PLEASE INTERACT WITH EXTRA CAUTION !! 
+⚜️ ᴘʟᴇᴀꜱᴇ ɪɴᴛᴇʀᴀᴄᴛ ᴡɪᴛʜ ᴇxᴛʀᴀ ᴄᴀᴜᴛɪᴏɴ !! 
 
-⚜️ I ALWAYS LOVE TO MAKE NEW FRIENDS !!
+⚜️ ɪ ᴀʟᴡᴀʏꜱ ʟᴏᴠᴇ ᴛᴏ ᴍᴀᴋᴇ ɴᴇᴡ ꜰʀɪᴇɴᴅꜱ !!
