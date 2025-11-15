@@ -26,5 +26,4 @@ Very amazing fact btw ^_^
 ![image](https://github.com/user-attachments/assets/bfdfc930-cc95-432e-a7da-13194762e6c1)
 ![image](https://github.com/user-attachments/assets/bfdfc930-cc95-432e-a7da-13194762e6c1)
 ![image](https://github.com/user-attachments/assets/13880630-d4bc-4b6e-b635-d509db418a72)
-![image](https://github.com/user-attachments/assets/ddb0a635-a809-485d-a953-12e6d5c22883)
-    
+![image](https://github.com/user-attachments/assets/ddb0a635-a809-485d-a953-12e6d5c22883) ![image](https://github.com/user-attachments/assets/13880630-d4bc-4b6e-b635-d509db418a72)
