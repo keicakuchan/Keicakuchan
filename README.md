@@ -8,6 +8,8 @@
 💌 ᴡʜɪꜱᴘᴇʀ ɪꜰ ɴᴇᴇᴅᴇᴅ
 💌 ɪɴᴛᴇʀᴀᴄᴛ ᴡɪᴛʜ ᴇxᴛʀᴀ ᴄᴀᴜᴛɪᴏɴ.
 <img width="640" height="51" alt="Image" src="https://github.com/user-attachments/assets/d29ab872-933e-44d4-8d52-6193e50d1bcd" />
+<img width="1280" height="102" alt="Image" src="https://github.com/user-attachments/assets/aad81ea4-6637-482d-87d7-59270e127002" />
 <img width="500" height="500" alt="Image" src="https://github.com/user-attachments/assets/f26b9878-b849-4790-accd-67f95449b92f" />
 <img width="640" height="51" alt="Image" src="https://github.com/user-attachments/assets/d29ab872-933e-44d4-8d52-6193e50d1bcd" />
+<img width="1280" height="102" alt="Image" src="https://github.com/user-attachments/assets/aad81ea4-6637-482d-87d7-59270e127002" />
 <img width="500" height="500" alt="Image" src="https://github.com/user-attachments/assets/4116dcfe-b9be-4c4e-a29a-53f3f0558d51" />
