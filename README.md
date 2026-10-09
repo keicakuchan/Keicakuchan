@@ -7,3 +7,4 @@
 💌 ꜰᴇᴇʟ  ꜰʀᴇᴇ ᴛᴏ ᴄᴜᴅᴅʟᴇ ᴏʀ ʜɪᴅᴇ
 💌 ᴡʜɪꜱᴘᴇʀ ɪꜰ ɴᴇᴇᴅᴇᴅ
 💌 ɪɴᴛᴇʀᴀᴄᴛ ᴡɪᴛʜ ᴇxᴛʀᴀ ᴄᴀᴜᴛɪᴏɴ.
+<img width="500" height="500" alt="Image" src="https://github.com/user-attachments/assets/a7af0d1b-0e3f-4680-adbd-48e2cdae5260" />
